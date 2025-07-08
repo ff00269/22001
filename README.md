@@ -20,4 +20,4 @@
 总的来说，虽然日本AV免费资源非常丰富，但用户在选择观看时应当注重站点的安全性和内容质量。通过选择正规、信誉好的平台，并采取适当的安全措施，用户可以享受流畅、安全的观看体验，同时保护个人信息不被泄露。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff00269/22001 ）</span>
